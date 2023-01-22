@@ -1,4 +1,4 @@
-# caru
+# Una recopilación de logos de varios diseñadores
 prueba
 Una recopilación de logos de varios diseñadores
 
